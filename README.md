@@ -1,2 +1,1 @@
-# Edufree
-Free education
+My name is Katlego Patience Mhlongo a,  am a young woman looking to empower young minds by giving them free education in the world if technology as we dive into the midst of the 5th industrial revolution.
